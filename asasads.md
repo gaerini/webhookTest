@@ -1,1 +1,1 @@
-asdasdasdasdasdasd
+이것도 한 번 어떤게 바뀌었는지 함 알려줘라
